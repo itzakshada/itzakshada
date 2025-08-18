@@ -81,7 +81,7 @@
 ## 📫 **Connect with Me**
 
 - 📧 [itzakshada15@gmail.com](mailto:itzakshada15@gmail.com)  
-- 🔗 [LinkedIn](https://www.linkedin.com/in/akshada-gaikwad](https://www.linkedin.com/in/akshada-gaikwad-366797290?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)](https://www.linkedin.com/in/akshada-gaikwad-366797290?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/akshada-gaikwad-366797290)  
 - 📄 [Download My Resume](./AkshadaGaikwad9209061252.pdf)
 
 ---
